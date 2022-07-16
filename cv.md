@@ -4,10 +4,10 @@
 -----
 #### Contact Info:
 
-**Phone:**+375 33 6435723
-**E-mail:** vakartser@gmail.com
-**Telegram:** @vas1991
-[Facebook](https://www.facebook.com/artsiom.brest)
+* **Phone:**+375 33 6435723
+* **E-mail:** vakartser@gmail.com
+* **Telegram:** @vas1991
+* [Facebook](https://www.facebook.com/artsiom.brest)
 
 -----
 #### About Myself:
