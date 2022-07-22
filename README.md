@@ -1,1 +1,1 @@
-# rsschool-cv
+https://vakartser.github.io/rsschool-cv/
