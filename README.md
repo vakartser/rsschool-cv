@@ -1,1 +1,1 @@
-https://vakartser.github.io/rsschool-cv/cv
+https://vakartser.github.io/rsschool-cv/
